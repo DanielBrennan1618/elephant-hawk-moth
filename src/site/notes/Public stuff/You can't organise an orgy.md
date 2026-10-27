@@ -2,9 +2,6 @@
 {"dg-publish":true,"permalink":"/public-stuff/you-can-t-organise-an-orgy/","dg-note-properties":{}}
 ---
 
-
-
-
 You can’t organise an orgy this is to say pleasure is picking brambles in the garden of a sleeping giant. 
 
 We can pick a place and a time sure but joy and pleasure is a thing that sneaks up on us while we are trying to do something else, a chance encounter, a stolen kiss, the crush you love to hate, a one night stand, a dark room an unexpected combination of sensations, words or flavours. 
