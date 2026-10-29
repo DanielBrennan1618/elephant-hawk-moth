@@ -7,3 +7,6 @@ Some of the confetti from my writing life.
 
 
 [[Bits and bobs/You can't organise an orgy\|You can't organise an orgy]]
+
+[[Bits and bobs/Ursula Le Guin\|Ursula Le Guin]] 
+
