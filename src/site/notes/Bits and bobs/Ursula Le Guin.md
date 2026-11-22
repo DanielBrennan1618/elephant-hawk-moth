@@ -5,7 +5,7 @@
 
 22:02 28-10-2026
 
-Those that walk away from Omeleas is short story that leaves a pick of ice in the heart. Ice truly as it chills you then melts and drips into your capillaries. What is about this simple story that leaves to such metaphors. 
+Those that walk away from Omeleas is short story that leaves a shard of ice in the heart. Ice truly as it chills you then melts and drips into your capillaries. What is about this simple story that leads to such metaphors. 
 
 We have a utopia a beautiful city full of all wonders that we can imagine. Boundless joy and painless living on streets that parade with happy people living free. In it's centre a child is locked in dark room. Dirty, naked, abused and forgotten. Shackled to the wall. 
 
